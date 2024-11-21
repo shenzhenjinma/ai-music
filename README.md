@@ -1,3 +1,4 @@
+![image](WechatIMG42.jpg)
 广州无线电之歌 歌词
  [Intro]
 嘿，来自广州的朋友们
